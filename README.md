@@ -1,2 +1,2 @@
 # ImaneLamriui.github.io
-## https://ImaneLamriui.github.io
+## https://imanelamriui.github.io
